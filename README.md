@@ -1,0 +1,2 @@
+# LABOUR
+labour(pride)
